@@ -11,3 +11,6 @@
 
 ## MEASUREMENT  
 
+## RESOURCES  
++ [Outside In](https://www.amazon.com/Outside-Putting-Customers-Center-Business-ebook/dp/B008CRWKRY)  
+
