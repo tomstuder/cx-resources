@@ -12,5 +12,5 @@
 ## MEASUREMENT  
 
 ## RESOURCES  
-+ [Outside In](https://www.amazon.com/Outside-Putting-Customers-Center-Business-ebook/dp/B008CRWKRY)  
++ [BOOK: Outside In: The Power of Putting Customers at the Center of Your Business](https://www.amazon.com/Outside-Putting-Customers-Center-Business-ebook/dp/B008CRWKRY)  
 
